@@ -15,7 +15,7 @@ src="https://raw.githubusercontent.com/devicons/devicon/master/icons/css3/css3-o
  
 <br>
  
-### Mais sobre mim e meu me sega nas redes sociais
+### Mais sobre mim e meu trabalho me siga nas redes sociais
  
 <div>
 
